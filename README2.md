@@ -1,6 +1,8 @@
 
 [mi CV](https://nani0609.github.io/CV_sandrock/)
 
+[video del CV anterior](https://youtu.be/3Px7IkQxMOY)
+
 # README - Proceso Creativo del Diseño del Curriculum Vitae
 
 ## Proceso Creativo
